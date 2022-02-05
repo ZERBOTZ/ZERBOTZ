@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ZERBOTZ
+- 👋 Hi, I’m ZERBOTZ
 - 👀 I’m interested in Bot and programing
 - 🌱 I’m currently learning in other people
 - 🔖 I'm Feel like a wibu 😎👌
